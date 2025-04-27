@@ -5,7 +5,7 @@ New Apps And Descover Hiden Apps in
 Their iPhones!
 NieptiunRecovery Made By @nieptiunreal
 on TikTok!
-Link For Download NieptiunReocvery 1.5:
+Link For Download NieptiunRecovery 1.5:
 https://www.icloud.com/shortcuts/f49f5b3e9b20442ab0156dbf3d82396e
 If Something Happens Contact Nieptiun On
 Tiktok!
