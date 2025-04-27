@@ -1,7 +1,7 @@
 # NieptiunRecovery 2.0 (Pre-Release)
 Hi, This is The First Beta Of NieptiunRecovery 2.0
 This Is A ShortCut!
-We Will Make Posibilites To Lauch A App!
+We Will Make Posibilites To Launch A App!
 The Link Will Be published Soon!
 
 
