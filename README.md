@@ -1,3 +1,9 @@
+# NightRecovery 1.0 (Release)
+This Shortcut is NieptiunRecovery But
+Beteer is Used To Make New Apps And Modify Your iPhone!
+To Use This ShortCut You Will Need A iPhone 11 Or Higher And A iPhone With iOS 18.1 Or Newer
+The Link Will Be Published At Night.
+
 # NieptiunRecovery 2.0 (Pre-Release)
 Hi, This is The First Beta Of NieptiunRecovery 2.0
 This Is A ShortCut!
